@@ -6,6 +6,7 @@
 
 
 🔥 **Click to play now**: [Italian Brainrot Clicker 2](https://clicker-game.com/italian-brainrot-clicker-2/ "Italian Brainrot Clicker 2")
+
 🔥 **Click to play now**: [Italian Brainrot Clicker](https://clicker-game.com/italian-brainrot-clicker/ "Italian Brainrot Clicker")
 
 ## Welcome to the Chaotic World of Italian Brainrot Clicker 2!
